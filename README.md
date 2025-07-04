@@ -1,6 +1,6 @@
 # 👋 Hi, I'm SHAMIKSHA CHAUDHARI 
 
-I have recently completed my 12th and am looking forward to  take admission in first year of engineering .I am a kind of creative person . I am passionate about being a full stack POLYGLOT developer.  
+I have recently completed my 12th and am looking forward to  take admission in first year of engineering .I am a kind of creative person . I am fervent about being a full proof technological solution provider and a complete developer.  
 
 ## 🚀 About Me
 
